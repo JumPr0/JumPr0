@@ -1,7 +1,7 @@
-## Olá, sou JumPro!! 🐱‍👤
+## Hi, I'm Jum!! 🐱‍👤
 
 
-Seja bem-vindo ao meu perfil!
+Welcome to my profile!
 
 <br></br>
 
