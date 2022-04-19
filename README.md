@@ -1,4 +1,4 @@
-## Hi, I'm Jum!! 🐱‍👤
+## Hi, I'm Junior!! 🐱‍👤
 
 
 Welcome to my profile!
